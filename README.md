@@ -1,2 +1,2 @@
 I creat a resume for my personal benifit.
-and i am learing.
+and i am learning.
